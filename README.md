@@ -1,2 +1,2 @@
 # LITESPAM-by-Mr.stangler
-Terimakasih Telah memakai tolls saya
+Terimakasih Telah memakai tools saya
